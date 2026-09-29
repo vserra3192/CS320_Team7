@@ -5,7 +5,7 @@ Wow
 This is going to be
 So much fun
 Can I get a: Ashwin Sarma, Fardeen
-"Horray!" Fardeen
+"Horray!" Ashwin Sarma
 Everyone replies with:
 "yippie!"
 Close Enough...
