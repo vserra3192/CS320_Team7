@@ -3,7 +3,7 @@ Software Engineering 320 team 7 repository
 Wow
 This is going to be
 So much fun
-Can I get a: 
+Can I get a: Peter
 "Horray!"
 Everyone replies with:
 "yippie!"
